@@ -1,4 +1,3 @@
-#582A64
 HIIIII HIIIIIIIIII!!!!!
 Name: Pluto/Star
 soooo
